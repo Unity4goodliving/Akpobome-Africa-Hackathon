@@ -34,4 +34,4 @@ Thanks for your anticipated selfless humanitarian service.
 
 The link to my certification is https://certs.hashgraphdev.com/6cf4c520-c449-4025-a7bc-97349493c7b8.pdf
 
-My pitch deck link is https://1drv.ms/w/c/be20953f3691546c/Ea5bq5clrolLvOFANJ57TWABc1wwjdJGqmlO0QjV1CbykA?e=44PAGh
+My pitch deck link is https://drive.google.com/file/d/1HUp82EP81oq8AbCh-MXZckcODg0fShB0/view?usp=drivesdk
