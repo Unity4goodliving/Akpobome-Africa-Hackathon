@@ -21,8 +21,8 @@ The book encouraging numerous projects for a holistic and common good.
 I am sure we now have the understanding that Unity for Good Living Initiative is fully decentralized into groups in both religious and non religious environment and I the author and founder of Unity for Good Living Initiative will not raise funds for any project, fund raising may take place at various groups, but my impact will depend on the patronage of my Action and Compassion Books business. I describe Unity for Good Living Initiative as dapps, that should be coordinated by religious leaders. I hope to see a world where everyone will realize the worship of a true God (Love) as a journey of repentance from selfishness (making the satisfaction of the desires of one's flesh a priority) to selfishness (denying the desires of one's flesh to achieve good as a priority).
 
 WHY AM I OUTSTANDING FOR REWARDS?
-I am outstanding for rewards because despite my unique Unity for Good Living Initiative, I have also passed Hedera certification course with a score of 78% and I am also aware of my team member (Paulo-prop) that is also Hedera certified.
-Any award I get here is not just empowering Unity for Good Living Initiative project ​but it's also empowering my Action and Compassion Books startup.​
+I am outstanding for rewards because despite my unique Unity for Good Living Initiative, I have also passed Hedera certification course with a score of 78% and I am also aware of my team members (U_6dd09c7f909b38 and Paulo-prop) that is also Hedera certified.
+Any award I get here is not just empowering Unity for Good Living Initiative ​but it's also empowering my Action and Compassion Books startup.​
 
 Hedera network will help us build a website for our Action and Compassion Books startup and market our books and Unity for Good Living Initiative worldwide, easily distribute free copies of ours books to any best three chemistry and any best three biology students that volunteer as Student Climate and Environmental Activist, this is a consistent programs for schools that consistently buy our books and make students volunteer as Student Climate and Environmental Activist.
 
