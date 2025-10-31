@@ -32,6 +32,8 @@ I am a member of MIT Alumni for Climate Action (MACA) and the author of the four
 Please read https://cutt.ly/2ni4H5B for more and share.
 Thanks for your anticipated selfless humanitarian service.
 
-The link to my certification is https://certs.hashgraphdev.com/6cf4c520-c449-4025-a7bc-97349493c7b8.pdf
+The link to my certification is https://drive.google.com/file/d/1HgY9R0Eo9pdzwFqHZ0_q3ysI3wyYbnBE/view?usp=drivesdk
+
+The link to the certification of my team member is https://drive.google.com/file/d/1GN3YYi4QBiFOafg7io053EfHUNJgcpmx/view?usp=drivesdk
 
 My pitch deck link is https://drive.google.com/file/d/1HUp82EP81oq8AbCh-MXZckcODg0fShB0/view?usp=drivesdk
