@@ -36,4 +36,6 @@ The link to my certification is https://drive.google.com/file/d/1HgY9R0Eo9pdzwFq
 
 The link to the certification of my team member is https://drive.google.com/file/d/1GN3YYi4QBiFOafg7io053EfHUNJgcpmx/view?usp=drivesdk
 
+The link to the certification of my second team member is https://drive.google.com/file/d/1KrphnOyMQb8tkl6dRfQo-7ZM08kpVFuu/view?usp=drivesdk
+
 My pitch deck link is https://drive.google.com/file/d/1HUp82EP81oq8AbCh-MXZckcODg0fShB0/view?usp=drivesdk
